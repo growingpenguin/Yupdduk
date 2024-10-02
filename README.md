@@ -38,3 +38,4 @@ Link: https://www.instagram.com/p/Cs3qXdMy1_B/?igsh=emVncGY5djY2eGUz <br/>
 ## 엽기떡볶이 제로웨이스트 캠페인
 2023.05.31 <br/>
 Link: https://www.instagram.com/p/Cs3xyuZyaKs/?igsh=eXA0emdzNmFuMWdq <br/>
+<img src="https://github.com/user-attachments/assets/aef3e920-e880-484d-8964-e4e15aacbda2" width="320" height="560">
