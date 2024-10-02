@@ -6,7 +6,7 @@ Link: https://www.instagram.com/p/CowTa0sSjPS/?igsh=MTd2Nml1Z3FxY2U4eg== <br/>
 <img src="https://github.com/user-attachments/assets/af6c5728-e7b1-4db3-b1fb-9c5cf0266eec" width="300" height="560"> <br/>
 ## 엽기떡볶이 굿즈 홍보 
 2023.02.24 <br/>
-Link: https://www.instagram.com/p/CpBvW5dyr7x/?igsh=NmRkdHAxa3kwZng0 <br/.
+Link: https://www.instagram.com/p/CpBvW5dyr7x/?igsh=NmRkdHAxa3kwZng0 <br/>
 <img src="https://github.com/user-attachments/assets/99e47e69-6433-4187-97d0-e8e8aa06bf5b" width="300" height="560"> <br/>
 ## 엽기떡볶이 제로 웨이스트 용기내 챌린지
 2023.02.24 <br/>
