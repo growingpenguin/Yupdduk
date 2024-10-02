@@ -31,6 +31,10 @@
 2023.04.21 <br/>
 Link: https://www.instagram.com/p/Cs3xyuZyaKs/?igsh=eXA0emdzNmFuMWdq&img_index=1 <br/>
 <img src="https://github.com/user-attachments/assets/9c13557a-2915-4195-9ff0-042318e00726" width="320" height="560"> <br/>
+## 엽기떡볶이 어플리케이션 홀주문 기능 홍보
+2023.04.21 <br/>
+Link: https://www.instagram.com/p/CrTSnJ_ygc6/?igsh=MXJ4N3dpNmdtMnk3MQ== <br/>
+
 ## 엽기떡볶이 사이드 메뉴 홍보 
 2023.05.25 <br/>
 Link: https://www.instagram.com/p/CspG4U1yzjt/?igsh=MTVsemN3b2M3cXg5aw== <br/>
