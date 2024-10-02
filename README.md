@@ -16,3 +16,5 @@
 2023.03.23 <br/>
 <img src="https://github.com/user-attachments/assets/13c8d23f-feff-4972-ab78-0c4030136e2c" width="320" height="560"> <br/>
 ## 엽기떡볶이 꿀조합 홍보
+2023.03.24 <br/>
+<img src="https://github.com/user-attachments/assets/01928ff5-1004-4bb4-9dfd-e5a00f385860" width="320" height="560">
