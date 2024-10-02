@@ -5,4 +5,4 @@
 
 ## 엽기떡볶이 굿즈 홍보 
 2023.02. <br/>
-![YupddukPortfolio2](https://github.com/user-attachments/assets/56841cd2-c9c1-4b32-8048-7ba4a2eb4a81)
+<img src="https://github.com/user-attachments/assets/99e47e69-6433-4187-97d0-e8e8aa06bf5b" width="300" height="560">
