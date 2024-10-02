@@ -21,3 +21,6 @@
 ## 엽기떡볶이 할인쿠폰 홍보
 2023.03.24 <br/>
 <img src="https://github.com/user-attachments/assets/b9e897f2-9908-441b-8a15-672152666085" width="320" height="560"> <br/>
+## 엽기떡볶이 환경지키미
+2023.03.24 <br/>
+<img src="https://github.com/user-attachments/assets/288203a5-cc4d-4180-8566-ef85168e3c9d" width="320" height="560">
