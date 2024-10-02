@@ -12,3 +12,4 @@
 ## 엽기떡볶이 어플리케이션 홍보
 2023.02.25 <br/>
 <img src="https://github.com/user-attachments/assets/2d760a3a-f34a-45c2-b556-5f34fc4ac489" width="320" height="560"> <br/>
+## 엽기닭볶음탕 홍보
