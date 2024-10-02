@@ -8,4 +8,4 @@
 <img src="https://github.com/user-attachments/assets/99e47e69-6433-4187-97d0-e8e8aa06bf5b" width="300" height="560"> <br/>
 ## 엽기떡볶이 제로 웨이스트 용기내 챌린지
 2023.02.24 <br/>
-<img src="https://github.com/user-attachments/assets/985050bf-dc7e-497b-910e-9164b511396c" width="300" height="560"> <br/>
+<img src="https://github.com/user-attachments/assets/985050bf-dc7e-497b-910e-9164b511396c" width="320" height="560"> <br/>
