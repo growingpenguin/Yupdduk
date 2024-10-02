@@ -24,6 +24,11 @@
 ## 엽기떡볶이 환경지키미
 2023.03.24 <br/>
 <img src="https://github.com/user-attachments/assets/288203a5-cc4d-4180-8566-ef85168e3c9d" width="320" height="560"> <br/>
+## 엽기떡볶이 환경지키미
+2023.03.24 <br/>
+<img src="https://github.com/user-attachments/assets/afb34a76-f532-4aaa-bd78-4e153cfcb8e2" width="320" height="560">
+
+
 ## 엽기떡볶이 이색 꿀조합 
 2023.04.19 <br/>
 <img src="https://github.com/user-attachments/assets/173c4c4c-ccac-4cf2-910f-d315fbd61976" width="320" height="560"> <br/>
